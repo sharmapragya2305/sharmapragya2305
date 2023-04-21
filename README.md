@@ -14,7 +14,7 @@
 - 📫 Surely Connect with me through - **[My Linktr.ee](https://linktr.ee/pragyasharma29)**
 
 - 📄 Know about my experiences at [My LinkedIn](https://www.linkedin.com/in/pragya-sharma-3b7a4b22a/)
-# 🌐 Connect with me :
+# 🌐 Connect with me:
 
 
 
